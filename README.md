@@ -1,2 +1,0 @@
-# CMST388
-CMST 388 7381 Course UMGC
